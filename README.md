@@ -35,23 +35,43 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-A touch-stone of grace Discouering the differences betweene true and counterfeit grace: laying downe
+
+1. TO THE PEOple
+of my Cure and
+Charge, Grace and
+Peace be multiplied.
+
+1. To the godly and
+wel-affected Reader.
+
+1. A briefe Table directing
+to the principall
+things contained
+in the Treatiſe
+following.
+
+1. Errata.
+
 #####Body#####
 
-1. Differences betwixt true and
-counterfeit Grace.
-
-1. Of the Euidence of true and
-ſound Grace.
-
-1. The first Euidence of grace.
-
-1. A ſecond Euidence
+1. A
+TOVCHSTONE
 of Grace.
 
-1. A third Euidence of Grace.
+    _ Differences betwixt true and
+counterfeit Grace.
 
-1. A fourth Euidence of Grace.
+    _ Of the Euidence of true and
+ſound Grace.
+
+    _ The first Euidence of grace.
+
+    _ A ſecond Euidence
+of Grace.
+
+    _ A third Euidence of Grace.
+
+    _ A fourth Euidence of Grace.
 
 **Types of content**
 
